@@ -27,4 +27,4 @@ Upon request, **anonymized samples** and/or a **short demo** can be shared.
 
 If you are interested in the tool, you can get in touch with us:
 
-* Email: [Contact mail](mailto:subtle.xerinae.wdnz@mask.me)
+* Email: [Contact mail](mailto:acontacto@gicp.es)
